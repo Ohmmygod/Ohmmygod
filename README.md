@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on group studying together on anything computer-related!
 - 📫 How to reach me IG: oxmms.y, FB: Shindanai Ohm Rugniyom
 
-Updated: 2024-04-16
+Updated: 2025-04-16
 <!---
 Ohmmygod/Ohmmygod is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
